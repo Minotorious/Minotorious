@@ -1,6 +1,6 @@
 ### Welcome to Minotorious' Official Github Page 🐧
 
-Together with the community I creat content for games and gaming media! 
+Together with the community I create content for games and gaming media! 
 
 Check out my [Official Website](https://minotorious.github.io/)
 
