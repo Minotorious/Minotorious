@@ -8,4 +8,4 @@ For updates on my projects follow me on [Twitter](https://twitter.com/theOneTrue
 
 Join me at [The Penguin Grounds (Discord Server)](https://discord.com/invite/AMMcH5a)
 
-Support me on [Patreon](https://www.patreon.com/minotorious)
+Support me on [Patreon](https://www.patreon.com/minotorious) or [Buy me a Coffee](https://www.buymeacoffee.com/Minotorious)
